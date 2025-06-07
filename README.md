@@ -1,5 +1,7 @@
 # Candy Ai Review 
 Candy AI is an AI-powered platform that offers virtual AI companions for conversation, roleplay, and entertainment. It allows users to create and interact with customizable AI characters, including romantic or NSFW interactions, depending on user preferences.
+[Get 50% off Cand Ai Premium here](linktr.ee/Candyaii)
+
 
 Key Features of Candy AI:
 AI Companionship – Users can chat with AI-generated characters in a conversational or roleplay style.
